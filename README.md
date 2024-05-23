@@ -1,8 +1,8 @@
-- 👋 Hi, I’m ThaboLekgau
+- 👋 Hi, I’m Thabo Lekgau
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning Web development
 - 💞️ I’m looking to collaborate on coding
-- 📫 How to reach me ...
+- 📫 My Contacts to reach me...079 956 9252/dikamogelodecam@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
